@@ -8,7 +8,6 @@ I (used to) write idiotic comments about the things I see.
 
 I have a more detailed résumé if you're into that sort of thing..
 
-(+977) 98**6891**
 <p>
 
 
